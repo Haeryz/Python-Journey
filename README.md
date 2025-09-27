@@ -1,2 +1,1 @@
-# Python-Journey
-Retardddddddddddddddmaaaaaaaaaxxxxxxxxxxxxxxxxxxxxxiiiiiiiiiiinnnnggggggggggggg python language programming
+Ohio
