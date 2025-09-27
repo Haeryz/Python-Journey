@@ -1,0 +1,2 @@
+# Python-Journey
+Retardddddddddddddddmaaaaaaaaaxxxxxxxxxxxxxxxxxxxxxiiiiiiiiiiinnnnggggggggggggg python language programming
